@@ -1,0 +1,1 @@
+# ArataKamikaze.github.io
